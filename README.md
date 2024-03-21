@@ -1,2 +1,2 @@
-# chrishodgkins.github.io
+# Chris Hodgkins
 Personal Page
